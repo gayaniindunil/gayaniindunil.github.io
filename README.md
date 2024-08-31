@@ -1,2 +1,2 @@
-# gayaniindunil.github.io
+# Gayani Indunil Chandrarathne
 gayaniindunil.github.io
